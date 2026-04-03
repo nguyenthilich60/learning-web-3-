@@ -9,19 +9,6 @@ sd df df bfgb dfb dfb df
 f bfgbf f fgbf fg f bfg fg 
 fd bfg fgn fgn fg fgn fgn fg
 s dcsdcsd csdc sd sdcsd
-csdcsdc
-dscsd
-csdc
-sdc
-sdc
-sdc
-sdc
-sd
-c
-dsc
-dsc
-cds
-
-cds
-dcs
-dcsdscd
+ascasc ác sadc dfbdfgb dfb dfbdf bdfbdfbd
+dfbdfbdfbdfbdfb dfbdf bdfbdfbdfbdfbdfbd f
+dfb dfbdfbfdbdfbdfb df vdfb dfb dfb dfb dfbdfbdfb 
