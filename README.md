@@ -12,3 +12,7 @@ s dcsdcsd csdc sd sdcsd
 ascasc ác sadc dfbdfgb dfb dfbdf bdfbdfbd
 dfbdfbdfbdfbdfb dfbdf bdfbdfbdfbdfbdfbd f
 dfb dfbdfbfdbdfbdfb df vdfb dfb dfb dfb dfbdfbdfb 
+gb fgb fg bfgb fgfg b fg fgbfg
+ fgbfg bfgb fgb fgb fgb fg bf
+ gb fg bfg bfgb fgb fb gfb fgb fgb
+ fgb fgb fgb fgb fgb fgb fgb fgb fg b
