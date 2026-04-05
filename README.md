@@ -5,14 +5,15 @@ dfbdf dfbdf dfbdf
 fgbndf dfgbdf dfvbdf dfvbdf 
 dfbvdf dfbvdf dfvdf dfbdf
 dfb df bdf df dfb dfb
-sd df df bfgb dfb dfb df 
-f bfgbf f fgbf fg f bfg fg 
-fd bfg fgn fgn fg fgn fgn fg
-s dcsdcsd csdc sd sdcsd
+sd df df bfgb dfb dfb df dvs sdv dsvdsv sdv
+f bfgbf f fgbf fg f bfg fg sdv sdv sdv sdv
+fd bfg fgn fgn fg fgn fgn fgsv sdv sdvsdv s
+s dcsdcsd csdc sd sdcsdsd vsdv sdv sdv sdv
 ascasc ác sadc dfbdfgb dfb dfbdf bdfbdfbd
 dfbdfbdfbdfbdfb dfbdf bdfbdfbdfbdfbdfbd f
 dfb dfbdfbfdbdfbdfb df vdfb dfb dfb dfb dfbdfbdfb 
-gb fgb fg bfgb fgfg b fg fgbfg
- fgbfg bfgb fgb fgb fgb fg bf
- gb fg bfg bfgb fgb fb gfb fgb fgb
- fgb fgb fgb fgb fgb fgb fgb fgb fg b
+gb fgb fg bfgb fgfg b fg fgbfgsdv sdv sdvsdvsd
+ fgbfg bfgb fgb fgb fgb fg bfsdv sd vsdvsdv sdv
+ gb fg bfg bfgb fgb fb gfb fgb fgbsdv sdv sv 
+ fgb fgb fgb fgb fgb fgb fgb fgb fg bsdv sd vs
+sdv sdv sdv sdv sdv sdv sdv sdv sdv sdv sdv sdv
